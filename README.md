@@ -1,3 +1,4 @@
+# web-ratna
 # my-type-and-about-me
 a little about me, I'm in the phase where I want to be rich in dating, but I'm afraid of failing again, to be honest in my last relationship, it just made me afraid, why???
 I'm scared of being left behind again, I'm the one who kept him in the process, I'm the one who was left behind, thrown away like trash, not appreciated at all, I've lowered my standards as a woman, begging, and that's the reason I'm afraid of starting with someone new, I I'm afraid I'll fail again.
